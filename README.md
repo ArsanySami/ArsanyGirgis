@@ -5,7 +5,7 @@
 - 🔭 Check this out!
 - 🌱 Learning Machine
 - 👯 I’m looking to collaborate with great software developers
-- 🥅 2022 Goals: Learn more about web3
+- 🥅 2024 Goals: Learn more about web3
 - ⚡ Fun fact: I love to play the guitar
 
 ### Connect with me:
